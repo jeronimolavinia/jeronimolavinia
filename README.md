@@ -1,4 +1,4 @@
-## Oii aqui é Lavinia, desenvolvedora de conteúdo de programação, sejam bem vindos ao meu perfil no GitHub!
+## Desenvolvedora de conteúdo de programação!
 
 
 

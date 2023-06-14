@@ -1,4 +1,4 @@
-## Lavinia Jeronimo - Desenvolvedora de conteúdo de programação e tecnologia!
+## Oii aqui é Lavinia, Desenvolvedora de conteúdo de programação, sejam bem vindos ao meu perfil no GitHub!
 
 
 

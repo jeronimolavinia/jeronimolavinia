@@ -1,4 +1,4 @@
-## Desenvolvedora de conteúdo de programação!
+## Desenvolvedora de conteúdo de programação
 
 
 

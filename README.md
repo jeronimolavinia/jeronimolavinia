@@ -1,4 +1,4 @@
-## Olá eu sou Lavinia Jeronimo, criadora de conteúdo de programação e tecnologia!
+## Lavinia Jeronimo - Desenvolvedora de conteúdo de programação e tecnologia!
 
 
 
